@@ -1,16 +1,1 @@
-# flat-cuties
-# flat-cuties
-# flat-cuties
-# Flatacuties-code-challenge
-# Flatacuties-code-challenge
-# Flatacuties-code-challenge
-# Flatacuties-code-challenge
-# Flatacuties-code-challenge
-# Flatacuties-code-challenge
-# Flatacuties-code-challenge
-# Flatacuties-code-challenge
-# Flatacuties-code-challenge
-# Flatacuties-code-challenge
-# Flatacuties-code-challenge
-# Flatacuties-code-challenge
 # Flatacuties-code-challenge
